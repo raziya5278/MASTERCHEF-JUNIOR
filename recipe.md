@@ -1,0 +1,5 @@
+Louis XIII pizza
+
+Price: $12,000
+
+The world’s most expensive pizza is meant to be shared but it’ll cost two people six thousand dollars each to enjoy this culinary creation. This is Louis XIII pizza designed by chef Renato Viola in Salerno, Italy. It’s only served at your residence for twelve thousand dollars.The dough is made from Arabian flour dusted with hand selected pink australian sea salt. It rises for 72 hours then the twenty centimeter pizza is topped with three different kinds of caviar, seven different types of cheese including buffalo mozzarella as well as lobster, mantis shrimp and prawns. When you order this pizza, chefs and a sommelier arrive at your door as you're being served the whole pizza] is flamed with three  thousand remy martin cognac.The pizza also comes with a very expensive wine pairing; a one thousand five hundred dollar bottle of vintage 1995 krug claude manilla champagne.
